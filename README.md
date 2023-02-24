@@ -1,6 +1,8 @@
 # where else am i in this world?
 although im banned from scratch, i am on other places too
 
+also if you try to friend request me on roblox tell me your username in the [issues](https://github.com/Marc92020/super-duper-journey/issues) tab please (and say your scratch username there too)
+
 there are some places im on that i cant link since this is probably gonna get posted on scratch so here are the places that i can link:
 
 [roblox (marcoblox0)](https://roblox.com/users/1859160686/profile)
