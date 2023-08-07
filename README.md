@@ -1,18 +1,17 @@
-# where else am i in this world?
-although im banned from scratch, i am on other places too
+# where else am i on the internet
 
-also if you try to friend request me on roblox tell me your username in the [issues](https://github.com/Marc92020/super-duper-journey/issues) tab please (and say your scratch username there too)
+i exist on other spots on the internet
 
-there are some places im on that i cant link since this is probably gonna get posted on scratch so here are the places that i can link:
+[scratch (marc92020)](https://scratch.mit.edu/users/marc92020)
 
-[roblox (marcoblox0)](https://roblox.com/users/1859160686/profile)
+[roblox (marcoblox0)](https://roblox.com/users/1859160686)
 
-[youtube (agugus is real)](https://www.youtube.com/@agugusisreal4281) (do not question my goofy ahh username)
+[youtube (marc92020)](https://www.youtube.com/@marc92020) (do not question my goofy ahh username)
 
-[geometry dash (marc92020)](https://gdbrowser.com/u/marc92020) (not that active on it)
+[geometry dash (marc92020)](https://gdbrowser.com/u/marc92020) (i have some levels (they arent the best tho))
 
 [tbgs/text based games forums (marc92020 from scratch)](https://tbgforums.com/forums/profile.php?id=1910) (also not that active there)
 
-[github (marc92020)](https://github.com/Marc92020)
+[github (marc92020)](https://github.com/Marc92020) (you are literally here)
 
-there are some other places that i probably cant link because of goofy scratch tos and cgs so
+there are other places
