@@ -2,15 +2,11 @@
 
 i exist on other spots on the internet
 
-[scratch (marc92020)](https://scratch.mit.edu/users/marc92020)
-
 [roblox (marcoblox0)](https://roblox.com/users/1859160686)
 
 [youtube (marc92020)](https://www.youtube.com/@marc92020) (do not question my goofy ahh username)
 
 [geometry dash (marc92020)](https://gdbrowser.com/u/marc92020) (i have some levels (they arent the best tho))
-
-[tbgs/text based games forums (marc92020 from scratch)](https://tbgforums.com/forums/profile.php?id=1910) (also not that active there)
 
 [github (marc92020)](https://github.com/Marc92020) (you are literally here)
 
